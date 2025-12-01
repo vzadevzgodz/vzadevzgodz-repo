@@ -1,1 +1,1 @@
-VZADeVzGoDz Repo
+vzadevzgodz-repo
